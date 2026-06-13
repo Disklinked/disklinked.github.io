@@ -1,1 +1,1 @@
-# disklinked.github.io
+Bye bro
